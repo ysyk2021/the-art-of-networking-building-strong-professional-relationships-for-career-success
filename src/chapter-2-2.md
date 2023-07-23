@@ -33,4 +33,4 @@ However, it's important to remember that technology alone cannot replace the val
 Conclusion
 ----------
 
-Networking is both an art and a science, requiring both interpersonal skills and an understanding of the social dynamics that underlie professional relationships. By building social capital through strong and weak ties, and leveraging technology to facilitate relationships, individuals can expand their networks and access new opportunities for career success. In the following chapters, we will explore strategies for effective networking that can help individuals build and maintain strong professional relationships.
+Networking is both an art and a science, requiring both interpersonal skills and an understanding of the social dynamics that underlie professional relationships. By building social capital through strong and weak ties, and leveraging technology to facilitate relationships, individuals can expand their networks and access new opportunities for career success.
