@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-=============================================================================
 
 Networking is a critical skill for professional success, but it can be challenging to master. To become effective networkers, individuals must be willing to seek out feedback and coaching to identify areas where they need to improve and develop their skills further. In this chapter, we will explore strategies for utilizing feedback and coaching to improve our networking skills.
 

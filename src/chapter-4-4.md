@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-=============================================================================
 
 Networking is a powerful tool for building strong professional relationships and advancing our careers. However, many people hold limiting beliefs about networking that prevent them from fully realizing its potential. In this chapter, we will explore strategies for understanding the power of networking and addressing limiting beliefs.
 

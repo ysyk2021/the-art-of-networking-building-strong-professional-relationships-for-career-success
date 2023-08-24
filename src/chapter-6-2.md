@@ -1,5 +1,3 @@
-Developing Strategies for Building Relationships and Advancing Your Career
-========================================================================================================================
 
 Networking is a key component of building strong professional relationships and advancing our careers. In this chapter, we will explore strategies for developing our networking skills, building strong relationships, and advancing our careers.
 

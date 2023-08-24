@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Networking
-====================================================================================================
 
 Networking can be challenging and uncomfortable, and it is not uncommon for individuals to experience resistance to networking efforts. In this chapter, we will explore common sources of resistance to networking and provide strategies for managing these challenges.
 

@@ -1,5 +1,3 @@
-Overview of Networking
-======================================================
 
 Networking is a vital component of professional success. It involves building and maintaining relationships with individuals who can help you achieve your career goals. In this chapter, we will provide an overview of networking and its importance in today's business world.
 

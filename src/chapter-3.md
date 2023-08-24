@@ -1,5 +1,3 @@
-Chapter 3: Developing a Networking Mindset
-==========================================
 
 To build a successful network, it is not enough to simply attend networking events and hand out business cards. Rather, networking requires a mindset that emphasizes building genuine relationships and providing value to others. In this chapter, we will discuss techniques for cultivating a networking mindset, including positive self-talk and visualization, goal setting, and developing empathy and compassion.
 

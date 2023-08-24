@@ -1,5 +1,3 @@
-Communicating Authentically and Confidently
-=========================================================================================
 
 Effective communication is a key component of successful networking. In this chapter, we will explore strategies for communicating authentically and confidently to maximize your networking skills.
 

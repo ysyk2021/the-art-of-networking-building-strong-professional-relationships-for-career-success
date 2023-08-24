@@ -1,5 +1,3 @@
-Understanding the Science Behind Networking
-===========================================================================
 
 Networking is often seen as an art -- something that is intuitive and based on personal relationships. However, there is also a science behind networking that can help individuals understand and leverage the power of professional relationships.
 

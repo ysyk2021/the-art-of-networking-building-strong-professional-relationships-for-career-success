@@ -1,5 +1,3 @@
-Understanding the Importance of Networking
-===================================================================
 
 Networking -- the process of building and maintaining professional relationships -- is a critical component of career success. Effective networking provides access to new opportunities, information, and resources that can help individuals achieve their goals and advance in their careers.
 

@@ -1,5 +1,3 @@
-Using Technology to Enhance Your Networking Experience
-=======================================================================================================
 
 In today's digital era, technology can be a powerful tool for building strong, meaningful relationships with professionals and achieving long-term career success. In this chapter, we will explore how to leverage technology to enhance your networking experience.
 

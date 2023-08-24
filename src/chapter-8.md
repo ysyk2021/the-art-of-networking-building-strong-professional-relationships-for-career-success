@@ -1,5 +1,3 @@
-Chapter 8: Creating a Networking Plan
-=====================================
 
 Creating a networking plan is essential to building strong, meaningful relationships with professionals and achieving long-term career success. In this chapter, we will explore the key steps involved in creating an effective networking plan.
 

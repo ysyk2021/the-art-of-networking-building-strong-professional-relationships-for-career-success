@@ -1,5 +1,3 @@
-Common Misconceptions About Networking
-===============================================================
 
 Networking is a critical component of career success, providing access to new opportunities, information, and resources that can help individuals achieve their goals. However, there are many misconceptions about networking that can limit its effectiveness and discourage individuals from engaging in this important activity.
 

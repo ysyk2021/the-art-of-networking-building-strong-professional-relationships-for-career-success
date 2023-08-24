@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-========================================================================
 
 Resistance to networking is a common challenge that many individuals face in their personal and professional lives. Whether it's fear of rejection, lack of confidence, negative stereotypes about networking, or time constraints, resistance can hold us back from building strong, meaningful relationships that can contribute to our long-term career success. In this chapter, we will explore strategies for managing resistance to networking by fostering a growth mindset.
 

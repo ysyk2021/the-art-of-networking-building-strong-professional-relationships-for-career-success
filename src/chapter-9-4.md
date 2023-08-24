@@ -1,5 +1,3 @@
-Avoiding Information Overload
-==============================================================================
 
 Technology has revolutionized the way we network, making it easier than ever to connect with colleagues, mentors, and potential employers. However, with so many tools available, it can be easy to become overwhelmed and experience information overload. In this chapter, we will discuss how to leverage technology for networking while avoiding information overload.
 

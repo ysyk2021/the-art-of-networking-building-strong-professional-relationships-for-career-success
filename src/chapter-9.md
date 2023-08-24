@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Networking
-===============================================
 
 Technology has revolutionized the way we network, providing new tools and resources to connect with others and build professional relationships. In this chapter, we will explore how to leverage technology for networking, including identifying networking technologies and resources, using technology to enhance your networking experience, fostering accessibility and inclusivity, and avoiding information overload.
 

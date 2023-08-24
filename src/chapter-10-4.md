@@ -1,5 +1,3 @@
-Adapting to Changes in Your Career
-==============================================================================================
 
 Networking is an ongoing process that requires continuous learning and improvement. In this chapter, we will explore how to measure networking results, learn from experience and adapt to changes in your career.
 

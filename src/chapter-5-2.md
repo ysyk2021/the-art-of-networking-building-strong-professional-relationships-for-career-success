@@ -1,5 +1,3 @@
-Finding Ways to Network Effectively
-=================================================================================
 
 Networking is essential for building strong professional relationships and advancing our careers, but it's not always easy to know where to start. In this chapter, we will explore strategies for maximizing our networking skills by finding ways to network effectively.
 

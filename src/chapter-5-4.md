@@ -1,5 +1,3 @@
-Fostering Meaningful Connections
-==============================================================================
 
 In the previous chapters, we have explored the importance of networking and strategies for building your network. In this chapter, we will discuss how to maximize your networking skills by fostering meaningful connections.
 

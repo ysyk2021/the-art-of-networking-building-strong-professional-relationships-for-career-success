@@ -1,5 +1,3 @@
-Chapter 2: Defining Networking
-==============================
 
 In this chapter, we will define networking and explore its key components. We will also discuss the science behind networking and provide tips for assessing your personal approach to networking.
 

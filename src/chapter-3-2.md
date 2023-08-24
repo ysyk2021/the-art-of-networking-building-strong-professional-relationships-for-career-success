@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-==========================================================================================
 
 Developing a networking mindset is an essential component of building strong professional relationships and advancing our careers. By utilizing positive self-talk and visualization, we can overcome limiting beliefs and adopt a more proactive approach to networking. In this chapter, we will explore strategies for developing a networking mindset that supports our long-term success.
 

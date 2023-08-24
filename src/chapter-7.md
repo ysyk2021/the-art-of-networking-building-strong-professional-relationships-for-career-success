@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Networking
-============================================
 
 Networking can be challenging, especially for individuals who are uncomfortable with self-promotion or who struggle with building relationships. In this chapter, we will discuss how to manage resistance to networking by identifying common sources of resistance, developing strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 

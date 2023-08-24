@@ -1,5 +1,3 @@
-Identifying Your Goals and Objectives
-============================================================================
 
 Effective networking requires a strategic approach that aligns with an individual's career goals and objectives. In this chapter, we will explore how to create a networking plan by identifying goals and objectives.
 

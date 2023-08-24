@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-=============================================================================================
 
 Resistance to networking is a common challenge that many individuals face in their personal and professional lives. In order to build strong, meaningful relationships, it is important to develop strategies for overcoming resistance. This chapter will explore strategies for managing and overcoming resistance to networking.
 

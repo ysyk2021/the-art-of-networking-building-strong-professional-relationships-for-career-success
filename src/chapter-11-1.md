@@ -1,5 +1,3 @@
-Recap of Key Strategies for Effective Networking
-========================================================================
 
 In this book, we have covered a wide range of strategies and techniques for effective networking to help you build strong professional relationships for career success. As a recap, in this chapter, we will revisit some of the key strategies for successful networking.
 

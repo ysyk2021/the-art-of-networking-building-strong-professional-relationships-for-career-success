@@ -1,5 +1,3 @@
-Identifying Key Connections and Potential Mentors
-========================================================================================
 
 Networking is critical for building strong professional relationships and achieving career success. In this chapter, we will discuss how to create a networking plan that identifies key connections and potential mentors.
 

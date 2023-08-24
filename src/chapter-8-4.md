@@ -1,5 +1,3 @@
-Creating a Personal Brand
-================================================================
 
 Effective networking requires a clear understanding of one's professional goals, strengths, and values. In this chapter, we will discuss how to create a networking plan by developing a personal brand that reflects these key elements.
 

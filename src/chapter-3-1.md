@@ -1,5 +1,3 @@
-Techniques for Cultivating a Networking Mindset
-===========================================================================================
 
 Developing a networking mindset is crucial for building strong professional relationships and advancing our careers. Building a mindset that supports networking can help us overcome limiting beliefs, focus on building relationships, and establish a more proactive approach to networking. In this chapter, we will explore techniques for cultivating a networking mindset.
 

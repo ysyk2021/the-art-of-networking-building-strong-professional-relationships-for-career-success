@@ -1,5 +1,3 @@
-Developing a Strategy for Achieving Your Networking Goals
-================================================================================================
 
 Networking plans are essential for individuals looking to build strong professional relationships that support career success. In this chapter, we will explore how to develop a networking strategy that aligns with an individual's goals and objectives.
 

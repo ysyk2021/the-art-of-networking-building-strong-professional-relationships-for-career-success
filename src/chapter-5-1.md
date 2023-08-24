@@ -1,5 +1,3 @@
-Identifying Opportunities to Network
-==================================================================================
 
 Networking can be a key driver of professional success, but it requires ongoing effort and dedication. To make the most of our networking efforts, it's important to identify and maximize opportunities to network. In this chapter, we will explore strategies for identifying opportunities to network and taking full advantage of them.
 

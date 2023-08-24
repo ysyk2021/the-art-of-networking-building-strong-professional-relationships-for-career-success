@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Networking
-================================================================================================
 
 Networking is often viewed as a transactional process focused on achieving one's personal and professional goals. However, to build truly meaningful and lasting relationships, it is essential to cultivate empathy and compassion towards others in the networking process. In this chapter, we will explore strategies for developing empathy and compassion through networking.
 
