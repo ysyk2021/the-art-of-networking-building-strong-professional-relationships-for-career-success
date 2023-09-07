@@ -12,3 +12,7 @@ The Art of Networking is a comprehensive guide to building strong professional r
 By following the guidance provided in this book, you will be well-equipped to develop and maintain a strong professional network that can help you achieve your career goals. Whether you are a natural networker or new to the practice, The Art of Networking is your go-to resource for building strong professional relationships and achieving career success.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
