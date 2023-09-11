@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Focusing on Networking
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of prioritizing networking for building strong professional relationships and achieving career success. By recognizing and harnessing the power of networking, you can unlock a range of advantages that contribute to your professional growth and advancement.
 

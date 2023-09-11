@@ -1,5 +1,4 @@
-Chapter 7: Identifying Key Connections and Potential Mentors
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of identifying key connections and potential mentors in your network-building journey. These individuals can play a pivotal role in your career success by providing guidance, support, and valuable insights. By strategically identifying and nurturing these relationships, you can enhance your professional development, expand your opportunities, and accelerate your growth.
 

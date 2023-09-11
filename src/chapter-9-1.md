@@ -1,5 +1,4 @@
-Chapter 10: Identifying Networking Technologies and Resources
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various networking technologies and resources that can enhance your ability to build strong professional relationships and achieve career success. The digital age has opened up a wide range of tools and platforms that can facilitate networking and expand your reach. By identifying and utilizing these technologies and resources effectively, you can optimize your networking efforts and maximize the benefits of your connections.
 

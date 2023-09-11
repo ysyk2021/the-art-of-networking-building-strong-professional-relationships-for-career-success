@@ -1,5 +1,4 @@
-Chapter 10: Finding Ways to Network Effectively
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various strategies and approaches for networking effectively to build strong professional relationships and achieve career success. By implementing these techniques, you can expand your network, create meaningful connections, and unlock valuable opportunities.
 

@@ -1,5 +1,4 @@
-Chapter 7: Developing Empathy and Compassion through Networking
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing empathy and compassion in the context of networking for building strong professional relationships and achieving career success. By cultivating these qualities, you can create meaningful connections, foster trust, and enhance the overall effectiveness of your networking efforts.
 

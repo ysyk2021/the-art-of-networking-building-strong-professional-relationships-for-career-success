@@ -1,5 +1,4 @@
-Chapter 12: Developing Strategies for Overcoming Resistance
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for overcoming resistance when networking to build strong professional relationships and achieve career success. Resistance can come in various forms, such as hesitation, skepticism, or reluctance from others. By understanding and addressing these barriers, you can navigate through resistance and foster meaningful connections.
 

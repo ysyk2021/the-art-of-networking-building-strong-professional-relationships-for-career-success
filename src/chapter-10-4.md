@@ -1,5 +1,4 @@
-Chapter 11: Adapting to Changes in Your Career
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of adapting to changes in your career when it comes to networking and building strong professional relationships. The modern work environment is dynamic and constantly evolving, requiring individuals to be flexible and adaptable. By embracing change and adjusting your networking strategies accordingly, you can navigate transitions more effectively and continue to thrive in your career.
 

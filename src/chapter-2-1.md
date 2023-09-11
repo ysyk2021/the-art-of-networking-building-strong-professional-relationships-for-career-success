@@ -1,5 +1,4 @@
-Chapter 1: Overview of Networking
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Welcome to the world of networking! In this chapter, we will provide an overview of networking and its significance in building strong professional relationships for career success. Understanding the fundamentals of networking is essential as you embark on a journey to expand your network and unlock new opportunities.
 

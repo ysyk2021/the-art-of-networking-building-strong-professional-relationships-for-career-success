@@ -1,5 +1,4 @@
-Chapter 8: Reflection and Self-Evaluation
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of reflection and self-evaluation when networking to build strong professional relationships and achieve career success. Reflecting on your networking experiences and engaging in self-evaluation allows you to gain insights, identify areas for improvement, and refine your networking strategies. By actively engaging in these practices, you can enhance the quality of your interactions and maximize the benefits of your professional connections.
 

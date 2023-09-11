@@ -1,5 +1,4 @@
-Chapter 5: Communicating Authentically and Confidently
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of communicating authentically and confidently in the context of networking for building strong professional relationships and achieving career success. Effective communication is a cornerstone of successful networking, and by embracing authenticity and confidence, you can foster genuine connections and make a lasting impression.
 

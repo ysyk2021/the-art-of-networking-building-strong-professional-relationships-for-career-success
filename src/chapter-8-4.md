@@ -1,5 +1,4 @@
-Chapter 12: Creating a Personal Brand
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of creating a personal brand in the context of networking and building strong professional relationships. Your personal brand is the unique combination of your skills, experiences, values, and reputation that sets you apart from others. By consciously crafting and nurturing your personal brand, you can amplify your professional presence, attract opportunities, and cultivate meaningful connections.
 

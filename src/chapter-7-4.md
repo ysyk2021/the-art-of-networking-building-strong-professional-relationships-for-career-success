@@ -1,5 +1,4 @@
-Chapter 6: Fostering a Growth Mindset
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering a growth mindset when networking to build strong professional relationships and achieve career success. A growth mindset is the belief that abilities and intelligence can be developed through dedication, effort, and continuous learning. By cultivating a growth mindset, you can approach networking with resilience, embrace challenges, and foster personal and professional growth.
 

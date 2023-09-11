@@ -1,5 +1,4 @@
-Chapter 7: Addressing Limiting Beliefs
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of addressing limiting beliefs in the context of networking for building strong professional relationships and achieving career success. Limiting beliefs can hinder your networking efforts and hold you back from reaching your full potential. By identifying and challenging these beliefs, you can overcome self-imposed barriers and unlock new opportunities.
 

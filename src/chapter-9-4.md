@@ -1,5 +1,4 @@
-Chapter 9: Avoiding Information Overload
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for avoiding information overload when networking to build strong professional relationships and achieve career success. In today's fast-paced digital age, we have access to an abundance of information and resources. However, it is crucial to navigate this wealth of information effectively to prevent overwhelm and ensure productive networking experiences.
 

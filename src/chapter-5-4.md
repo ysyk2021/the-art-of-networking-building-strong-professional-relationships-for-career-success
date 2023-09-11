@@ -1,5 +1,4 @@
-Chapter 9: Fostering Meaningful Connections
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering meaningful connections when networking to build strong professional relationships and achieve career success. Meaningful connections go beyond superficial interactions and create a foundation of trust, support, and mutual growth. By nurturing these connections, you can unlock opportunities and enhance your professional journey.
 

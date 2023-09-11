@@ -1,5 +1,4 @@
-Chapter 8: Identifying Common Sources of Resistance to Networking
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common sources of resistance that individuals often face when it comes to networking for building strong professional relationships and achieving career success. By understanding these sources of resistance, you can address them effectively and overcome the barriers that hinder your networking efforts.
 

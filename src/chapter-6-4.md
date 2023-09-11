@@ -1,5 +1,4 @@
-Chapter 5: Fostering Continuous Learning and Improvement
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of fostering continuous learning and improvement in the context of networking for building strong professional relationships and achieving career success. By embracing a mindset of lifelong learning, you can enhance your networking skills, expand your knowledge, and adapt to the ever-evolving professional landscape.
 

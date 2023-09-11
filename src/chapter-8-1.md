@@ -1,5 +1,4 @@
-Chapter 3: Identifying Your Goals and Objectives
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of identifying your goals and objectives in the context of networking and building strong professional relationships. Clearly defining your aspirations and intentions can provide focus, direction, and purpose to your networking efforts. By understanding what you aim to achieve, you can strategically prioritize your actions and maximize the value of your connections.
 

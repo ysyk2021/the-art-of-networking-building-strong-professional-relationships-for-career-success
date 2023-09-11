@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Science Behind Networking
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the science behind networking and how it influences the way we build strong professional relationships for career success. By understanding the psychological and social dynamics at play, you can enhance your networking skills and create more meaningful connections.
 

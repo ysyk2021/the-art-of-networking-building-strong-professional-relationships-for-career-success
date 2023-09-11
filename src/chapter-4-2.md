@@ -1,5 +1,4 @@
-Chapter 2: Recognizing How Networking Contributes to Career Success
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant role that networking plays in contributing to career success. By understanding the impact and benefits of networking, you can recognize its importance and harness its potential to propel your professional growth.
 

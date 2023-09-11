@@ -1,5 +1,4 @@
-Chapter 5: Developing Strategies for Building Relationships and Advancing Your Career
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for building strong professional relationships and advancing your career through networking. By implementing these strategies, you can foster meaningful connections, expand your opportunities, and propel your career to new heights.
 
